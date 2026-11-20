@@ -1,0 +1,1 @@
+# bakery-register-privacy-policy
